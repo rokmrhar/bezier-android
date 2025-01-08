@@ -1,1 +1,1 @@
-**2nd school project**
+2 projektna naloga ~ Android logotip
